@@ -7,6 +7,6 @@ I didn't play AdVenture Communist today. I took a break from it, as I didn't hav
 
 Due to a discovery yesterday about how much time all games together take up, and how little time it leaves me, I had to make a schedule change for gaming, splitting all 25 games I play across a 7 day period, instead of all in 1 day.
 
-I won't be playing this game again until the new time slot, which is Saturday. I will be playing again on Halloween, Saturday, October 31st 2020.
+I won't be playing this game again until the new time slot, which is Saturday. I will be playing again on Saturday, November 7th 2020.
 
 ***
